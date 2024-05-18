@@ -1,1 +1,1 @@
-# Deplom
+# Diplom
